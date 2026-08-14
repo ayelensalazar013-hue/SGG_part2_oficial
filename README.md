@@ -1,1 +1,0 @@
-# SGG_part2_oficial
